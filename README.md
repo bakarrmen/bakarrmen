@@ -6,5 +6,5 @@
 
 iya
 Test
-iyakah
+iya
 yes
