@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @bakarrmen
 - 👀 I’m interested in ...
 ffffffffffffff
-g
+gggg
 - 📫 How to reach me ...
 hitam
 iyadddd
